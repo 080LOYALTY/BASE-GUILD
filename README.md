@@ -6,3 +6,4 @@ need 100 commits
 maybe a base airdrop?
 idk honestly
 or maybe not
+lol
