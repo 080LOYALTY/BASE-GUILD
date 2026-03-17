@@ -4,3 +4,4 @@ Hope its worth it
 for base
 need 100 commits
 maybe a base airdrop?
+idk honestly
