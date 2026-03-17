@@ -27,4 +27,4 @@ i
 bet
 do
 you
-thinl
+think
